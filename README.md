@@ -1,5 +1,5 @@
  # 💫 About Me:
-💻 I’m Software Developer with a passion for Blockchain, Investments & Business<br>🤝🏾 I’m looking for help with<br>💼 I’m currently working in NTTDATA<br>
+💻 I’m Software Developer with a passion for Blockchain, Investments & Business<br>🤝🏾 Add me on LinkedIn<br>💼 I’m currently working in NTTDATA<br>
 
 
 ## 🌐 Socials:
